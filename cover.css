@@ -27,7 +27,9 @@ a:hover {
 html,
 body {
   height: 100%;
-  background-color: #333;
+  background-color: #000;
+  /*background-image: url(./images/at-work.jpg);*/
+
 }
 body {
   color: #fff;
