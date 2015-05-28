@@ -1,33 +1,25 @@
 
 
-Licenciada en Arte Dramático. Universidad del Valle. Cali
 
-Especialista en Audiovisuales. Universidad del Valle. Cali
+ Queda en contacto con _Lucia Amaya_ a traves de las varias  plataformas de blogging, perfiles en redes sociales y por supuesto, correo electronico
 
-Especialista en Gerencia para las Artes.  Bellas Artes. Cali
 
-Especialista en Dramaturgia. Universidad de Antioquia. Medellín
+## Blogs:
 
-Magister en Literatura (c). Universidad del Valle. Cali
+<http://luciaamaya.tumblr.com>
+
+<http://luciaamayaescritura.tumblr.com>
+
+<https://medium.com/@luciaamaya>
+
 
 
 ## Redes sociales
 
+* Google <https://plus.google.com/115228506252260584296/>
+
 * Facebook: <https://www.facebook.com/luciaamayas>
 
 
-## blogs:
 
-<http://luciaamaya.tumblr.com>
-
-* envivoart.tumblr.com
-
-* artecontemporáneo
-
-* luciaamayaescritura
-
-* cuerpo y escritura
-
-* expresiones femeninas
-
-<https://medium.com/@luciaamaya>
+## Correo Electronico
