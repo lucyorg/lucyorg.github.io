@@ -1,7 +1,7 @@
 
 
 
- Queda en contacto con _Lucia Amaya_ a traves de las varias  plataformas de blogging, perfiles en redes sociales y por supuesto, correo electronico
+ Queda en contacto con *Lucia Amaya* a traves de varias plataformas de blogging, perfiles en redes sociales y por supuesto, correo electronico
 
 
 ## Blogs:
@@ -23,3 +23,4 @@
 
 
 ## Correo Electronico
+luciaamaya@msn.com *|* luciaamayas@gmail.com
