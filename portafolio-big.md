@@ -52,7 +52,7 @@ Dramaturgia: *William Shakespeare* Colegio Alas 2015.
 Se dan citas diversas formas de encontrar y luchar por el amor, en la que convergen aristócratas, humildes, hadas y duendes, en un ambiente real y fantástico a la vez.
 
 
-## Psicosis 4:28
+## 4:48 Psicosis
 Dramaturgia *Sarah Kane* El nombre de la obra hace referencia a la hora en la que se tiende a acabar los efectos de los farmacos tomados la noche anterior. Muestra que es lo que pasa por la mente de una persona cuando no distingue lo real de lo imaginario, los recuerdos de lo fantasioso, los sueños de las pesadillas.
 
 
