@@ -89,16 +89,26 @@ Con la necesidad de seguir produciendo acciones con un fuerte contenido polític
 
 
 ## Escrito en el cuerpo:
-Investigación con base en las decisiones que cada individuo toma  para modificarlo o marcar su cuerpo.
-Obra presentada en la intervención colectiva "entrepiernas" orientada hacia el cuerpo y el género, 2015.
+Investigación  basada en las decisiones que toma cada individuo para modificar o marcar su cuerpo. Obra presentada en la intervención colectiva "entrepiernas" orientada hacia el cuerpo y el género, 2015.
 
 
 ## Performance Art y Diversidad.
 Colectivo de performance constituido en febrero del 2015 en Cali, investiga el arte de acción y la acción política en el ejercicio de la ciudadanía.
 
+
 ![](pics/expresiones/exprper1.jpg)
 
-### “Salta, el piso aparecerá”:
-Performance realizado en la exposición: Cuerpos, encuentro sobre diversidad de género, Museo de Arte religioso, étnico y cultural, 15 de Julio del 2015.
 
-![](pics/pperform/cuerpos.jpg)
+## Salta, el piso aparecerá.
+Intervención corporal mediante el tatuaje. Marca consciente que construye y reconstruye el cuerpo, la piel, como construcción narrativa en espacio simbólico y subjetivo hacia el territorio social, intercambio entre vuelo y dolor como gesto de transmutación en el acto de evocar una levedad que desafía límites. Expocision __cuerpos, encuentro sobre diversidad de género__. Con Laura Rivera, artista plastica.   Curadoria: Karime Garcia y Juan David Medina. Miercoles 15 de julio, 2015. Museo religioso, étnico y cultural de Cali.
+
+
+![](pics/perfocp/perfcp4.jpg)
+
+![](pics/perfocp/perfcp1.jpg)
+
+![](pics/perfocp/perfcp2.jpg)
+
+![](pics/perfocp/perfcp3.jpg)
+
+<iframe width="854" height="510" src="https://www.youtube.com/embed/VPF7xJNIocQ" frameborder="0" allowfullscreen></iframe>
